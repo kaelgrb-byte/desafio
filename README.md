@@ -2,106 +2,107 @@
 
 Oct 28, 2026 · @kael kortz
 
-## Visão geral
+## a ideia
 
-Um programa de 21 dias pra sair do automático e voltar ao básico: se mexer, comer comida de verdade, estar presente e pegar sol. Nada de fórmula mágica, só o simples feito todo dia. A pessoa faz no ritmo dela; o grupo é pra quem quer fazer junto.
+nenhum de nós mudou de vida com uma dieta ou um plano de academia. mudou com hábitos simples: comer comida de verdade, se mexer ao ar livre, largar o celular e olhar mais pra dentro.
 
-**Pra quem:** pra quem cansou de viver no piloto automático. Sentado o dia todo, comendo sem pensar, preso no celular. Não precisa virar atleta, só precisa começar.
+esse programa junta os hábitos que transformaram a vida de cada um de nós. a pergunta que guiou tudo: *se o kael do passado tivesse esses hábitos, como a vida dele teria mudado em 21 dias?*
 
-**O que vem dentro:**
+em 21 dias, a ideia é você:
 
-- uma aula de boas-vindas com a gente
-- 3 semanas, cada uma com um vídeo de abertura e 7 missões diárias
-- guia de alimentação ancestral + lista de compras
-- checklist dos 21 dias pra imprimir
-- acesso ao grupo da comunidade no whats
+- voltar ao básico
+- ter mais energia e entusiasmo
+- viver uma vida mais leve
+- alinhar corpo, mente e espírito
+- voltar a amar a vida
 
-**Preço:** valor baixo de entrada (a definir).
+## no que a gente acredita
 
-## Checklist diário
+**comer 🥩**
 
-alimente seu corpo, sua mente e sua alma. todo dia, o básico:
+a gente não gosta de dieta restritiva nem de contar caloria. acredita em comer alimento nutritivo: carne, ovos, frutas, mel, laticínios, alguns grãos, alguns legumes, doces com poucos ingredientes. uma alimentação mais ancestral. o que a gente evita: óleos vegetais e processados. é isso que dá energia e dá pra sustentar.
 
-**corpo**
+**se mover**
 
-- [ ] se mexer por 30 min do seu jeito: calistenia, surf, corrida, trilha, o que te fizer bem
+a gente não curte academia pelo ambiente. treina ao ar livre, se mexe de um jeito leve, por prazer e não por obrigação. faz calistenia porque sabe da importância do treino de força, e o resto é diversão: surf, trilha, caminhada, altinha, tênis, yoga, qualquer coisa. o que importa é estar em movimento.
 
-**alimento 🥩**
+**desacelerar 👁️**
 
-- [ ] zero ultraprocessados. só comida de verdade
+as telas e o excesso de informação deixam a gente ansioso e estressado. a gente acredita em momentos offline: não mexer no celular logo ao acordar, escrever, respirar, ler um livro. mais tempo na natureza e momentos sozinho pra olhar pra dentro, sem distração.
 
-**mente 👁️**
+## como funciona
 
-- [ ] acordar e ficar 10 min sem pegar o celular
-- [ ] 10 min de presença: escrita, silencio, respiracao
+são 3 semanas, uma pra cada coisa em que a gente acredita: comer, se mover, desacelerar. cada semana traz hábitos novos, e eles vão se somando. no dia 21 você vive tudo junto.
 
-**natureza 🌞**
+todo dia tem uma aula curta com a gente. você faz sozinho, no seu ritmo, e se quiser, faz junto com a galera no grupo do whats.
 
-- [ ] passar um tempo no sol, minimo 30 min
-- [ ] pé no chão: areia, grama, mar, trilha
+## semana 1 – voltar ao básico
 
-**missão do dia**
+*comer, com o yago*
 
-- [ ] fazer a missão da aula de hoje
+nada de dieta. só voltar pra comida de verdade.
 
-## Semana 1 – despertar
+**o que entra na sua rotina:** comida de verdade em toda refeição, sem óleo vegetal e sem processado.
 
-vídeo de abertura: perceber o automático. antes de mudar qualquer coisa, você precisa enxergar como vive hoje.
+1. por que voltar ao básico: a nossa história
+2. o que é comida de verdade (e por que não precisa contar caloria)
+3. abrir a cozinha e achar os óleos vegetais e os processados
+4. trocar: manteiga, banha ou azeite no lugar do óleo
+5. montar o prato: carne ou ovos, fruta, legume, comer até ficar satisfeito
+6. doce de verdade: fruta, mel, poucos ingredientes
+7. uma semana depois: o que mudou na sua energia?
 
-| Dia | Missão | Conduz |
-| --- | --- | --- |
-| 1 | dá uma nota de 0 a 10 pra sua energia, seu sono e seu humor. tira uma foto. esse é seu ponto de partida | Kael |
-| 2 | escolhe o seu movimento e faz 30 min dele. qualquer um vale | Kael |
-| 3 | abre a geladeira e lista os ultraprocessados que você come sempre. você realmente sabe o que está comendo? | Yago |
-| 4 | acorda e não pega o celular. 10 min de sol no rosto primeiro | Kael |
-| 5 | monta um prato ancestral: carne, peixe ou ovo, vegetal, fruta ou raiz | Yago |
-| 6 | respira por 10 min antes de dormir. só isso | Yago |
-| 7 | olha pra trás: o que foi fácil e o que pesou essa semana? | Kael e Yago |
+## semana 2 – energia e entusiasmo
 
-## Semana 2 – limpar
+*se mover, com o kael*
 
-vídeo de abertura: o ambiente molda cada decisão que você toma. quebra o ciclo tirando o que te puxa pro automático.
+sem academia, sem obrigação. se mexer porque é bom.
 
-| Dia | Missão | Conduz |
-| --- | --- | --- |
-| 8 | tira os ultraprocessados de casa e faz a feira da lista ancestral | Yago |
-| 9 | experimenta um movimento novo: mar, trilha, corrida, um esporte | Kael |
-| 10 | desliga as notificações das redes por 24h | Yago |
-| 11 | um dia sem açúcar. fruta pode | Yago |
-| 12 | levanta da cadeira a cada hora. o corpo foi feito pra se mexer | Kael |
-| 13 | 10 min observando seus pensamentos sem reagir. você não é seus pensamentos | Yago |
-| 14 | qual hábito já virou natural? | Kael e Yago |
+**o que entra na sua rotina:** se mover ao ar livre todo dia, do jeito que te dá prazer, e treino de força 2 ou 3 vezes na semana.
 
-## Semana 3 – viver sem medo
+8. por que a gente largou a academia
+9. calistenia: o treino de força que a gente faz (sem equipamento)
+10. achar o seu movimento: surf, trilha, caminhada, altinha, tênis, yoga
+11. treino de força ao ar livre
+12. se mexer com alguém: chama um amigo
+13. dia leve: caminhada ou yoga
+14. uma semana depois: o que mudou no corpo?
 
-vídeo de abertura: a vida não vem com mapa. a graça está em ser feliz durante o processo.
+## semana 3 – uma vida leve
 
-| Dia | Missão | Conduz |
-| --- | --- | --- |
-| 15 | termina o banho com 30s de água gelada. ou entra no mar | Kael |
-| 16 | cozinha uma refeição ancestral do zero | Yago |
-| 17 | se mexe ao ar livre no nascer ou no pôr do sol | Kael |
-| 18 | um dia sem tela por lazer. vive o momento | Yago |
-| 19 | faz aquilo que você vem adiando por medo | Kael |
-| 20 | escreve uma carta pra quem você era no dia 1 | Yago |
-| 21 | refaz as notas do dia 1, compara e escolhe o que fica pra vida | Kael e Yago |
+*desacelerar, com os dois*
 
-## Comunidade no whats
+menos tela, menos ruído. mais natureza e mais tempo com você mesmo.
 
-o conteúdo tá todo na plataforma. o grupo é pra fazer junto: gente que também tá voltando ao básico, se puxando pra cima.
+**o que entra na sua rotina:** acordar sem celular, um momento offline por dia (escrever, respirar ou ler) e tempo na natureza.
 
-- quem entra no programa recebe o link do grupo junto com o acesso
-- todo dia a galera compartilha o check-in: o movimento, o prato, o sol
-- a gente faz o programa junto e tá lá comentando, documentando o processo também
-- um ao vivo no fim de cada semana (dias 7, 14 e 21)
+15. por que a gente vive ansioso
+16. a manhã offline: no lugar do celular, escrever ou respirar
+17. ler um livro no lugar de rolar a tela
+18. tempo na natureza
+19. um momento sozinho, sem distração, pra olhar pra dentro
+20. corpo, mente e espírito juntos: um dia com todos os hábitos
+21. voltar a amar a vida: o que fica daqui pra frente
 
-## Venda e próximos passos
+## o seu dia no fim dos 21 dias
 
-A venda e o acesso ficam na Kiwify: a pessoa paga e recebe na hora o acesso às aulas e o link do grupo.
+esse é o checklist que a pessoa vai montando semana a semana. no fim, é o dia a dia dela.
+
+- [ ] comida de verdade, sem processados e sem óleos vegetais
+- [ ] se mexer ao ar livre, do jeito que der prazer
+- [ ] treino de força (2 ou 3 vezes na semana)
+- [ ] acordar e não pegar o celular
+- [ ] um momento offline: escrita, silêncio ou respiração
+- [ ] passar um tempo no sol e na natureza, mínimo 30 min
+
+## pra lançar (só pra nós)
+
+A primeira turma é um teste: serve pra ver se as pessoas compram e pra começar a comunidade, que é a base da marca pessoal. A pessoa paga na Kiwify e recebe na hora o acesso às aulas e o link do grupo do WhatsApp.
 
 - [ ] Definir o preço
-- [ ] Gravar a aula de boas-vindas, as 3 aberturas de semana e as 21 missões
-- [ ] Montar os PDFs (guia ancestral, lista de compras, checklist dos 21 dias)
-- [ ] Criar o produto e a área de membros na Kiwify
+- [ ] Escrever a nossa história (aula 1)
+- [ ] Gravar as 21 aulas: Yago na semana 1, Kael na semana 2, os dois na semana 3
+- [ ] Montar o checklist em PDF
+- [ ] Criar o produto na Kiwify
 - [ ] Criar o grupo no WhatsApp com aprovação de participantes
 - [ ] Divulgar no Instagram
